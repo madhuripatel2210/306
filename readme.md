@@ -1,8 +1,6 @@
 Madhuri said:
  
- A
- F
- C
+
 
 >hello
 >:sparkles: I am the best. :sparkles:
